@@ -33,6 +33,7 @@ as a final point of contact and offers additional resources or links
 ![ScreenShot_08-09-2024_18_37_20](https://github.com/user-attachments/assets/25df42e4-07cf-4c3d-9368-cad34bc08fbc)
 ![ScreenShot_08-09-2024_18_38_06](https://github.com/user-attachments/assets/c78855ee-af73-45ab-b62b-082d82bb8eea)
 ![ScreenShot_08-09-2024_18_38_29](https://github.com/user-attachments/assets/ab52b7b6-e85f-4a31-ac10-f3638238d7ee)
+# Added projects 
 ![ScreenShot_08-09-2024_18_39_00](https://github.com/user-attachments/assets/1b750a19-acbc-4a86-81e5-36c95819c36d)
 
 
